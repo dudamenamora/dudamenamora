@@ -1,12 +1,12 @@
 hello my name is grow 
 
-namoro com a duda soares
+queria namorar com a sophia suelem
 
-tenho 42 anos 
-
+tenho 18 year
+ 
 biologo do verde
 
-gosto de nada a nao ser minha namorada duda linda gata loira (tirando volei)
+gosto de nada a nao ser minha namorada sophia gata loira (tirando volei)
 
 tuezin018
 
